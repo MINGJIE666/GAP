@@ -1,4 +1,4 @@
-if you have any problem about them, please contact:
+If you have any problem, please contact:
 mjlmjmj666@gmail.com, lmj@hust.edu.cn (Mingjie LI)
 
 reference:
